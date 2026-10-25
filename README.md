@@ -1,3 +1,4 @@
+![Banner](banner.jpg)
 Hi there, I'm Mebi Septino 👋
 
 Founder @ GadgetKini Padang | AI & Commerce Builder | From Padang, Indonesia
